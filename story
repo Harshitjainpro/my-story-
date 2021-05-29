@@ -1,0 +1,1 @@
+the kid's fater dide.the one capten came to the kid's hote and stayed there.
